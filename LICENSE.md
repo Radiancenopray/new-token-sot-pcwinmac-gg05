@@ -1,4 +1,4 @@
-# 
+# VIP new token sniper bot flujo de trabajo para Mac OS | Élite new token sniper bot flujo de trabajo para PC Windows. Con cálculo de ganancias y estrategias de back-running — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
